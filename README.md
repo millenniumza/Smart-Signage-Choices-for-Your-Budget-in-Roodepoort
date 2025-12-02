@@ -79,4 +79,50 @@ This guide breaks down **materials**, **cost ranges**, **use cases**, and **smar
 ## 5. Installation Costs
 
 Typical Roodepoort ranges:
+- Standard wall-mount: R450 – R1 500
+- Large installations: R1 500 – R6 500
+- Lightbox electrical setup: R850 – R2 000
+
+Costs depend on:
+- ✔ Height/access  
+- ✔ Mounting surface  
+- ✔ Size  
+- ✔ Electricity needs (for lightboxes)
+
+---
+
+## 6. Tips to Save Money Without Sacrificing Quality
+- ✔ Choose matte laminate for longer outdoor durability  
+- ✔ Combine materials (acrylic letters on aluminium)  
+- ✔ Use LEDs for lower power costs  
+- ✔ Keep design simple to reduce manufacturing time  
+- ✔ Take correct measurements to avoid reprints  
+
+---
+
+## 7. Real Example: Smart Budgeting in Roodepoort
+
+- Client: Local café, Roodepoort
+- Budget: R3 500
+- Goal: Increase street visibility
+- Solution: 1.2m Chromadek sign + lamination
+- Result: +22% walk-ins within 2 weeks
+---
+
+## 8. Why Millennium Signs is Roodepoort’s Trusted Signage Partner
+- ✔ Over 20 years experience  
+- ✔ In-house manufacturing in Johannesburg  
+- ✔ Fast production times  
+- ✔ Full installation support  
+- ✔ Budget-friendly recommendations  
+
+---
+
+## 9. Request a Free Quote
+
+Email: **info@millenniumsignage.co.za**  
+Phone: **068 913 0377**  
+Location: **Selby, Johannesburg**
+
+Tell us your budget — we’ll recommend the smartest signage choice for your business.
 
